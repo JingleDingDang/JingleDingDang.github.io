@@ -1,2 +1,1 @@
-# dingdang.github.io
-博客
+520 ❤ (非原创)
